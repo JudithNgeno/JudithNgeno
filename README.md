@@ -8,7 +8,7 @@ Data enthusiast with a passion for turning raw information into actionable insig
 - Microsoft Office Suite <br>
 
 ## 🎓 Education
-MSc in International Business with Data Analytics, Ulster University (Expected 2025) <br>
+MSc in International Business with Data Analytics, Ulster University (2025) <br>
 BSc in Economics and Mathematics, Kabarak University (2021) <br>
 
 ## 💼 Professional Experience
